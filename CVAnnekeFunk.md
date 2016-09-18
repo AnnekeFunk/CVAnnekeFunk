@@ -1,6 +1,4 @@
- Resumé
- Anneke Funk
- September 2016
+ Resumé Anneke Funk - September 2016
 
 Resumé
 =======
